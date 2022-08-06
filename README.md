@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @thokD3
+- 👋 Hi, I’m Sourin Dutta
 - 👀 I’m interested in football, PC gaming, programming.
 - 🌱 I’m currently learning Information Technology
 - 💞️ I’m looking to collaborate on anything fun!
